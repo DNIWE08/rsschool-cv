@@ -1,1 +1,0 @@
-https://DNIWE08.github.io/rsschool-cv/cv
